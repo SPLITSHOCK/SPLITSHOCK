@@ -1,0 +1,6 @@
+I AM SPLITSHOCK
+THAT IS MY NAME
+I AM THE ONE
+THE ONLY
+SPLITSHOCK
+i do be doin the thing tho
